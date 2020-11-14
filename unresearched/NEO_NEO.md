@@ -1,1 +1,1 @@
-
+Chinese Ethereum, but worse?

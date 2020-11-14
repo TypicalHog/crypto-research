@@ -1,1 +1,1 @@
-
+Synthetic assets.<br>

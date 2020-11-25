@@ -1,1 +1,2 @@
-Chinese Ethereum, but worse?
+Chinese Ethereum, but worse?<br>
+Dead, essentially.<br>

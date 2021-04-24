@@ -4,3 +4,4 @@ The shadiest high cap coin.<br>
 It going bust would be devastating to crypto as we know it.<br>
 People who hold USDT are either sitting under a rock or just plain stupid.<br>
 Some evidence points to Chinese people using it to get capital outside of the country.<br>
+Just listed on Coinbase. Bruh...<br>

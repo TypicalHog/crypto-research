@@ -9,3 +9,4 @@ Native assets are live.<br>
 ADA has been added to Coinbase.<br>
 Full smart contracts functionality possibly Q3 2021.<br>
 ~70% ADA staked.<br>
+The Essential Cardano list: https://github.com/input-output-hk/essential-cardano/blob/main/essential-cardano-list.md<br>
